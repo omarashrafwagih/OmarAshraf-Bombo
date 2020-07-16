@@ -12,7 +12,7 @@ I'm **Omar Ashraf**, (or **Bombo** if you want to use the nickname) and I'm a Te
 
 - 🧑‍🎤 &nbsp;&nbsp; Education: **Telecommunication Engineer**
 - 👾 &nbsp;&nbsp; Passionate about **Web & Tech** and why developers should understand it _(ask me about it)_
-- 💚 &nbsp;&nbsp; Love **Javascript**
+- 💚 &nbsp;&nbsp; In Love With **Javascript**
 - 👯 &nbsp;&nbsp; I’m looking to collaborate on some Open-source Projects and Full Time Job
 - 📱 &nbsp;&nbsp; Check my personl website [**Portfolio**](https://www.omarashraf.com/)
 
