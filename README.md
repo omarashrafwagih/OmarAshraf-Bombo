@@ -20,7 +20,7 @@ I'm **Omar Ashraf**, (or **Bombo** if you want to use the nickname) and I'm a Te
 
 - 🧙‍♂️ &nbsp;&nbsp; Helping others and learning on [**Elzero Web School**](https://www.facebook.com/groups/ElzeroWebSchool) community
 - 🎤 &nbsp;&nbsp; Singing Everywhere I am a professional Singer, Haha **Kidding**
-- ✍️ &nbsp;&nbsp; Writing new Content on [**Instagram**](https://www.instagram.com/omarashrafcodes/)
+- ✍️ &nbsp;&nbsp; Learning New and Intersting Web Technologies.
 - 👷‍♂️ &nbsp;&nbsp; Building **Weird Stuff** & **New Web Ideas**
 
 ## 📬 Get in touch
