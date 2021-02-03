@@ -27,5 +27,5 @@ I'm **Omar Ashraf**, (or **Bombo** if you want to use the nickname) and I'm a Te
 
 - Connect with me on [**Linkedin**](https://www.linkedin.com/in/omar-ashraf-wagih/)
 - @ Add me on [**Facebook**](https://www.facebook.com/omar.ronaldo.ashraf/)
-- @ Follow me on [**Instagram**](https://www.instagram.com/omarashrafcodes/)
+- @ Follow me on [**Instagram**](https://www.instagram.com/omarashrafwagih/)
 - @ Mail me on **omar_ashraf_93@hotmail.com**
